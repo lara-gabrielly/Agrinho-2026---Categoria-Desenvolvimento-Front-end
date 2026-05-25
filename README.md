@@ -1,1 +1,1 @@
-# Agrinho-2026 - Sustentabilidade e agro
+# Agrinho-2026 - Sustentabilidade e o agro
